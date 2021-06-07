@@ -1,7 +1,7 @@
 ### Credits
 
 Credits To FRK1 For Making HazeDumper
-Me For Making It IG :)
+& Me For Making It IG :)
 
 ### Notes
 
